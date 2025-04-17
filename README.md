@@ -1,1 +1,1 @@
-Hi, I'm Johra-E-Jannat Oishy. I'm currently an undergrad student of BRAC University .I'm driven by a strong work ethic and a passion for achieving ambitious goals. 
+Hi, I'm Johra-E-Jannat Oishy. I'm currently an undergraduate student at BRAC University. I'm driven by a strong work ethic and a passion for achieving ambitious goals. I’m a dedicated enthusiast of coding and software development, with a deep appreciation for the power of technology to shape the way we live, work, and connect.
